@@ -1,10 +1,9 @@
 # My Favorite Animated Series
 
 ## Arcane 
-is one of my favorite animated series because of its amazing animation, interesting characters, and emotional storyline. The series is based on the world of League of Legends and focuses on the conflict between two cities, Piltover and Zaun.
+Arcane is one of my favorite animated series because of its amazing animation, interesting characters, and emotional storyline. The series is based on the world of League of Legends and focuses on the conflict between two cities, Piltover and Zaun. What makes this series special to me is how it shows the different lives, struggles, and experiences of each character. I also enjoy how the story connects the characters and shows how their decisions affect the people around them. Every episode has exciting moments, beautiful visuals, and unexpected events that make me want to continue watching. Overall, Arcane is a great animated series that combines action, drama, friendship, and family in a meaningful way.
 
 ---
-
 
 ### Series Information
 
